@@ -179,21 +179,13 @@ of the 22 top Nazis imprisoned there managed to commit suicide does not change t
   The prison block which housed the war criminals was a three-storey structure with a wide corridor running the length of the ground floor. Cells lay on both sides of the corridor, and at either end circular stairways led to the two upper tiers of cells. The catwalks along these upper tiers were screened to prevent any suicidal leap to the corridor. Before and during the trial, the major Nazis were all housed on the ground floor. In the end only those sentenced to be hanged remained there, and the others were moved to upper tiers before they were finally taken way to Spandau Prison in a Berlin suburb.
   The individual cells were about nine by thirteen feet. A heavy wooden door several inches thick was centered in the
 · nine-foot wall, on the corridor side. Opposite it was a high, barred window opening into a court. In the center of the door at about chin height was a small drop door about fif­ teen inches square. This was kept open at all times. The door, opening down, jutted out at right angles into the cell and formed a small shelf on which the prisoner's meals were placed.
-  The cells were furnished each with a steel cot fastened to the wall at one side of the door. Opposite it were a lavatory bowl and toilet, the latter without wooden cover or seat. The only other furnishings were a straight chair and a flim­ sy table on which prisoners were allowed to keep pencil,
-15
-
-###	THE ENVIRONMENT
-papers, family photographs, tobacco, and toilet articles. All other personal possessions had to go on the floor. Most of the prisoners kept extra clothes, linen, and so forth, ar­ ranged in piles between the foot of the cot and the window. Hess added to these the various small packages of food which he persisted in saving to submit to chemical analysis, one of his delusions being poisoned food.
+  The cells were furnished each with a steel cot fastened to the wall at one side of the door. Opposite it were a lavatory bowl and toilet, the latter without wooden cover or seat. The only other furnishings were a straight chair and a flim­ sy table on which prisoners were allowed to keep pencil, papers, family photographs, tobacco, and toilet articles. All other personal possessions had to go on the floor. Most of the prisoners kept extra clothes, linen, and so forth, ar­ ranged in piles between the foot of the cot and the window. Hess added to these the various small packages of food which he persisted in saving to submit to chemical analysis, one of his delusions being poisoned food.
   The only time when a prisoner could be out of sight was when seated on the toilet. Even then his feet remained visible to the guard. Prior to the suicide of Robert Ley, one guard was assigned to watch each four prisoners; thereafter, a guard was on duty at each cell door twenty-four hours a day.
   The cells were lighted by an electric bulb in a reflector fastened to the outer side of a grille which fitted into the small door. This light burned with constant brilliance·, except during sleeping hours when it was dimmed. Even then it remained bright enough for reading. The reflector was about twelve inches in diameter and covered most of the grille, forcing the guard to peer around the edges at the prisoner.
   It was the Jail's strict rule that head and hands of the prisoner must remain visible all the time he was in bed. Prisoners who snuggled down too cozily during the cold winter nights were brusquely wakened by worried guards, occasionally forced to turn ends about on the cot and sleep facing into the light where they could be better watched.
   But, tough as it was, nearly 10 per cent of its top Nazi criminals "escaped" the jail by suicide. The human element is the decisive one in even the harshest prisons. The four­ cell guard never suspecting Ley' "puttering" in the toilet area as he prepared his own strangulation. Goering's guard never saw him slip into his mouth the tube of potassium cyanide. In any event, once Goering had the poison in his possession, the guard could not have prevented his suicide.
   The cell searches, which it was admitted might have been "perfunctory" in the days before the suicide and executions, were another practice typical of a tough prison. Once a week, twice, perhaps four times or oftener, the prisoner could expect a "shakedown." In this the prisoner was forced to strip and stand in a comer of the cell while M.P.'s went carefully through his bedding, clothing, papers, and other impedimenta. In my months at Nuremberg these shakedowns were so thorough that prisoners needed some four hours to restore their cells to order.
-  Once a week the prisoners were marched to a shower room where they bathed under supervision. They were al-
-
-
-### Nuremberg Jail	17
-lowed to keep one outfit of their own clothing, with several changes of linen, socks, and so on in their cells. Class X (unfit for further Army use) fatigues were issued for loung­ ing and policing their quarters. These "beat-up" GI work clothes were the only garments Streicher and Ley had for months. Before the trial began, the United States Army se­ cured from their families oiie suit for each prisoner to wear into court.
+  Once a week the prisoners were marched to a shower room where they bathed under supervision. They were allowed to keep one outfit of their own clothing, with several changes of linen, socks, and so on in their cells. Class X (unfit for further Army use) fatigues were issued for loung­ ing and policing their quarters. These "beat-up" GI work clothes were the only garments Streicher and Ley had for months. Before the trial began, the United States Army se­ cured from their families oiie suit for each prisoner to wear into court.
   No suspenders, belts, or shoelaces were allowed in the cells; nor, of course, was anything remotely resembling a weapon. During the trial all laces, braces, and such items were taken away from the prisoners as soon as they re­ turned from courtroom to cell. At first no string of any sort was allowed but, eventually, each of the elderly men who wore shoes was issued two four-inch pieces of thin string to tie through the top holes of his shoes so he need not shuf­ fle as he moved about his cell and the exercise yard.
   This yard, about a block square, lay at one side of the cell block. One prisoner would walk fifteen minutes at a time up and down one side of the walled yard while another, within hailing distance but forbidden to communicate, paced up and down the other side.
   When the prisoners were moved from Mundorf to Nurem­ berg some two months before the trial, they had been in con­ finement for three months. Goering I had seen and treated regularly for his drug addiction at Mundorf; Hess (who reached Nuremberg some time later) had been under British medical care. The others were held virtually incommunicado. Their guards maintained a stony silence except to correct them harshly for some breach of the strict discipline; even the waiters who brought their food were forbidden to return their greetings.
@@ -220,22 +212,18 @@ THE CRIMINALS
 | Alfred Jodi	|b. May 10, 1890|	Hanged, Nuremberg Jail, Oct. 16, 1946|
 | Wilhelm Keitel |	b. Sept. 22, 1882	|Hanged, Nuremberg Jail Oct. 16, 1946 |
 | Karl Doenitz |	b. Sept. 16, 1891 |	Serving 10 years' imprisonment |
-Erich Raeder	 b. April 24, 1896	Serving life imprisonment Ernst Kaltenbrunner	b. Oct. 4, 1903	 Hanged, Nuremberg Jail,
-Oct. 16, 1946
-Julius Streicher	b. Feb. 12, 188S	Hanged, Nuremberg Jail,
-Oct. 16, 1946
-Robert Ley	b.Feb. 15, 1890	Committed suicide, Nuremberg Jail, Oct., 1945
-Hans Frank	b. May 3, 1900	Hanged, Nuremberg Jail, Oct. 16, 1946
-Wilhelm Frick	b. March 12, 1877	Hanged, Nuremberg Jail,
-Oct. 16, 1946
-Arthur Seyss-Inquart	b. July 12, 1892	Hanged, Nuremberg Jail,
-Oct. 16, 1946
-Hjalmar Horace Greeley b. Jan. 22, 1877	Freed by International Schacht		Tribunal
-Walther Funk	b. Aug. 18, 1890	 Serving life imprisonment Albert Speer	 b. March 19, 190S	Serving 20 years' im-
-prisonment
-Fritz Sauckel	b. Oct. 27, 1894	Hanged, Nuremberg Jail,
-Oct. 16, 1946
-ADOLF HITLER	b. April 20, 1889	Fate undetermined
+|Erich Raeder |	 b. April 24, 1896 |	Serving life imprisonment |
+|Ernst Kaltenbrunner	|b. Oct. 4, 1903|	 Hanged, Nuremberg Jail, Oct. 16, 1946|
+|Julius Streicher |	b. Feb. 12, 188S |	Hanged, Nuremberg Jail,Oct. 16, 1946 |
+|Robert Ley |	b.Feb. 15, 1890	|Committed suicide, Nuremberg Jail, Oct., 1945|
+|Hans Frank	|b. May 3, 1900	|Hanged, Nuremberg Jail, Oct. 16, 1946|
+|Wilhelm Frick	|b. March 12, 1877|	Hanged, Nuremberg Jail,Oct. 16, 1946|
+|Arthur Seyss-Inquart |	b. July 12, 1892 |	Hanged, Nuremberg Jail,Oct. 16, 1946|
+|Hjalmar Horace Greeley | b. Jan. 22, 1877|	Freed by International Schacht Tribunal|
+|Walther Funk	| b. Aug. 18, 1890	| Serving life imprisonment |
+|Albert Speer	 |b. March 19, 190S	|Serving 20 years' imprisonment |
+|Fritz Sauckel	|b. Oct. 27, 1894	|Hanged, Nuremberg Jail,Oct. 16, 1946|
+|ADOLF HITLER	|b. April 20, 1889	|Fate undetermined|
 
 
 ## PART TWO THE POLICY MAKERS
