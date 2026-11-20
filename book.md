@@ -93,7 +93,6 @@ ADOLF HITLER II	161
 Part Eight
 20. WHAT DOES IT MEAN TO AMERICA?	170
 
-
 ## INTRODUCTION
 This is not a book for psychiatrists, historians, or
 the uninformed. Psychiatrists and psychologists will find in the professional journals the reports of which this book is at the same time an abstract and an elaboration. For historians, the transcripts of interviews and other records from which much, but by no means all, of the data was taken will, I as­ sume, eventually be made available. As for the third class­ I am not inclined to burden this report with more detail than I judge a moderately well-informed reader will require to understand the personalities under examination.
@@ -164,20 +163,12 @@ Nor did Hitler and Rosenberg invent the myth of the Ger­ man super-race. Here i
 !Professor von Seyden, Frankfurter Zeitung, 1914).
 -  "... The Government has decided to extend the German order over the whole world. The world will have to reck­ on with German economy, with German soldiers, and can­ non." (Dr. Goebbels, in a speech on March 23, 1936.)
 
-The depreciation of ethics, of conscience as a guide to onduct, reached its prime expression in the Nuremberg Nazis. But the way had been prepared. Pedants, generals, md priests had long taught that no moral scruples should
-,tay a hand raised to strike for the German State. Some oersons may assume that a higher morality guided Germany's
-rulers during the years of the Weimar Republic, but the evi­ tlence does not support wishful assumptions.  Here is the
-:,oastful testimony of Dr. Karl J. Wirth, leader of the Catholic
-::::enter Party and Chancellor of the Republic from 1921 to 1922, from the Luzerner Tageblatt, August, 1937:
-"As to the rearmament of Germany, Hitler has only con­tinued the rearmament that had been prepared by the Weimar epublic. I, myself, deserve great credit for this prepa­ ration ...  The great difficulty was that our military efforts
-:rnd  to  be  kept  secret  from  the  Allies ...  When  Hitler
-::arne to power he no longer needed to concern himself with the quality of the German Army but only with the quantity. The real reorganization was our work."
+The depreciation of ethics, of conscience as a guide to conduct, reached its prime expression in the Nuremberg Nazis. But the way had been prepared. Pedants, generals, and priests had long taught that no moral scruples should stay a hand raised to strike for the German State. Some persons may assume that a higher morality guided Germany’s rulers during the years of the Weimar Republic, but the evidence does not support wishful assumptions. Here is the boastful testimony of Dr. Karl J. Wirth, leader of the Catholic Center Party and Chancellor of the Republic from 1921 to 1922, from the Luzerner Tageblatt, August, 1937:
 
-What of Nazi Germany's slave-labor policy? The following statement of Ernst Haase, Leipzig University professor md President of the Pan-German League, dates back to 1905, and anticipates the crimes of Frank, Rosenberg, and Sauckel.
-"Who in the future is to do the heavy and dirty work
-.vhir::h every national community based on labor will always leed? . . . Is it to be left to any part of our German people
-:o 9c:upy such slaves' positions? The solution consists in
-)Ur condemning alien European stock, the Poles, Czechs, fews, Italians and so on ... to these slaves' occupations."
+“As to the rearmament of Germany, Hitler has only continued the rearmament that had been prepared by the Weimar Republic. I, myself, deserve great credit for this preparation ... The great difficulty was that our military efforts had to be kept secret from the Allies ... When Hitler came to power he no longer needed to concern himself with the quality of the German Army but only with the quantity. The real reorganization was our work.”
+What of Nazi Germany’s slave-labor policy? The following statement of Ernst Haase, Leipzig University professor and President of the Pan-German League, dates back to 1905, and anticipates the crimes of Frank, Rosenberg, and Sauckel.
+
+“Who in the future is to do the heavy and dirty work which every national community based on labor will always need? . . . Is it to be left to any part of our German people to occupy such slaves’ positions? The solution consists in our condemning alien European stock, the Poles, Czechs, Jews, Italians and so on ... to these slaves’ occupations.”
 
 
 ### THE ENVIRONMENT
