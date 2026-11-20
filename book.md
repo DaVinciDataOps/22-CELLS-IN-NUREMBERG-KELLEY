@@ -25,7 +25,6 @@ Stanford University
 by Douglas M. Kelley, M.D.
 Psychiatrist to the Nuremberg Jail
 
-
 A MACFADDEN BOOK
 DEDICATION
 TO JUNE AND DOC
@@ -42,9 +41,8 @@ MacFadden Publications, Inc.
 
 PRINTED IN U.S.A.
 
-
-CONTENTS
-INTRODUCTION	7
+## CONTENTS
+## INTRODUCTION	7
 Part One
 THE ENVIRONMENT
 1. PAN-GERMANISM AND NAZI IDEOLOGY.	12
@@ -60,8 +58,8 @@ Part Three
 THE SALESMEN
 6. HANS FRITZSCHE	63
 7. BALDUR VON SCHIRACH	67
-8. JOACHIM VON  RIBBENTROP	72
-9. CONSTANTIN  VON NEURATH	87
+8. JOACHIM VON RIBBENTROP	72
+9. CONSTANTIN VON NEURATH	87
 FRANZ VON PAPEN
 
 Part Four
@@ -99,26 +97,40 @@ Part Eight
 ## INTRODUCTION
 This is not a book for psychiatrists, historians, or
 the uninformed. Psychiatrists and psychologists will find in the professional journals the reports of which this book is at the same time an abstract and an elaboration. For historians, the transcripts of interviews and other records from which much, but by no means all, of the data was taken will, I as­ sume, eventually be made available. As for the third class­ I am not inclined to burden this report with more detail than I judge a moderately well-informed reader will require to understand the personalities under examination.
-  No reader of newspapers, magazines, or contemporary historical literature needs to have retold the history of the Nazi Party. You will not find here a warmed-over account of Hitler's rise to power, or the Munich Putsch, of the 1934 purge, or the 1944 assassination attempt. What you will find, I trust, is an intelligible analysis of the personalities which were able to warp and control the actions of 80 mil­ lion Germans.
-  One of the most important values in civilization is what Korzybski has called "time binding"-the ability to learn from the past experience of others without having to go through it ourselves. It is imperative that we appreciate the horror of the Third Reich without experiencing it. The dev­ astation of Europe, the deaths of millions, the near-destruc­ tion of modern culture will have gone for naught if we do not draw the right conclusions about the forces which produced such chaos. We must learn the why of the Nazi success so we can take steps to prevent the recurrence of such evil.
-  My method in this book will be to relate my conclusions about Nazism to what I learned from and about the top Nazis themselves. During the five months I served as Psy­ chiatrist to the Nuremberg Jail, I interviewed every day at length some of the 22 men held there as war criminals. Ex­ cept for the insane Hess, this was the first thorough mental checkup any of them had been given.
+
+No reader of newspapers, magazines, or contemporary historical literature needs to have retold the history of the Nazi Party. You will not find here a warmed-over account of Hitler's rise to power, or the Munich Putsch, of the 1934 purge, or the 1944 assassination attempt. What you will find, I trust, is an intelligible analysis of the personalities which were able to warp and control the actions of 80 mil­ lion Germans.
+
+One of the most important values in civilization is what Korzybski has called "time binding"-the ability to learn from the past experience of others without having to go through it ourselves. It is imperative that we appreciate the horror of the Third Reich without experiencing it. The dev­ astation of Europe, the deaths of millions, the near-destruc­ tion of modern culture will have gone for naught if we do not draw the right conclusions about the forces which produced such chaos. We must learn the why of the Nazi success so we can take steps to prevent the recurrence of such evil.
+
+My method in this book will be to relate my conclusions about Nazism to what I learned from and about the top Nazis themselves. During the five months I served as Psy­ chiatrist to the Nuremberg Jail, I interviewed every day at length some of the 22 men held there as war criminals. Ex­ cept for the insane Hess, this was the first thorough mental checkup any of them had been given.
 In addition to careful medical and psychiatric examina­
 tions, I subjected the men to a series of psychological tests.
 
 Such tests are of accessory value in supplementing medical observations and providing objective data for the case his­ tory. The most important technique employed was the Rorschach Test, a well-known and highly useful method of personality study. A few of the criminals were given The­ matic Apperception Tests, a projective technique utilizing standard pictures about which the subject makes up a story. The intelligence· estimations were made from a German adaptation of the Wechsler-Bellevue Test devised by my as­ sistant, Dr. Gustave Gilbert, the prison psychologist and then a captain in the AU .S. Dr. Gilbert was also assigned to my office as an interpreter and, at my direction, made records of many of the conversations which I had with these pris­ oners and which are reported in this book.
-  The language problem was an important one in some instances; but for the most part, the chief criminals spoke fairly good English. I always used interpreters to prevent misunderstandings, however, in important discussions. Fre­ quently, I would rotate interpreters on different days, getting the same information through rephrasing the questions. In this way I was able to check on the quality of the interpre­ tations and properly evaluate my findings.
-  As a psychiatrist, I interviewed first of all the men them­ selves. But, realizing that their prison personality patterns would naturally reflect a desire to curry favor, and for the further reason that any honest testimony is usable in psy­ chiatric synthesis, I also obtained interviews with and writ­ ten reports from a number of persons who had known the Nuremberg Nazis when they were at the top of the heap.
-  Such outside evidence provided confirmation that all of the prisoners were exhibiting various degrees of depression. The following excerpts from a letter which one of them wrote to his wife is generally indicative of the hopelessness and discouragement all 22 displayed in greater or lesser degree.
-  "I doubt whether anyone can understand our state of mind without having experienced all this. The worries about the closest members of the family, the sons missing in action, the destroyed property, and all the personal pain about the whole country, about other relatives, the painful thoughts about the future without any regard to our own fate-all this is so unique that it can only be compared with the Thirty Years' War of destruction. The great difference is that the catastrophe came within two years and to an extent never witnessed before. 
-  We intended to build a more beautiful Germany; instead we now have a heap of rubbish, ummagmable, and not to be eliminated in decades."
-  Such a wealth of data was available-from associates, moving pictures, speeches, writings, and other records-that I was able to verify virtually every facet of character of every person under examination. For the record, all histor­ ically significant material in this report is based on a minimum of two, and generally three, witnesses. In many instances, I have not revealed the source of my information. But each has been authenticated, and the information is available to interested and qualified individuals.
-  Complete studies of the personalities discussed in this book are under way. They will be published in the professional journals in due time.
-. I wish to express here my deepest appreciation to Lt. Col. Renee Juchli who, as Chief Medical Officer of Nurem­ berg Jail, gave wholehearted support to my studies. I am grateful also to the other members of the medical and nurs­ ing staff and, particularly, to Lt. Dorothy Mears who was instrumental in obtaining data from the female prisoners among the lesser Nazis in the jail. I am also grateful to the Commanding Officer of the Internal Security Detachment, Col. B. C. Andrus, who facilitated my work at every -step.
-  Without the support of Drs. Richard M. Brickner, D. Ewen Cameron, Nolan D. C. Lewis, John A. P. Millet, and Marga­ ret Mead, I should never have attempted a book for the lay reader. Without the generous aid of Mr. Nathan Schulman, I should certainly never have completed it.
-  I owe a debt of thanks also to the many translators who aided me in obtaining various manuscripts and in converting
+
+The language problem was an important one in some instances; but for the most part, the chief criminals spoke fairly good English. I always used interpreters to prevent misunderstandings, however, in important discussions. Fre­ quently, I would rotate interpreters on different days, getting the same information through rephrasing the questions. In this way I was able to check on the quality of the interpre­ tations and properly evaluate my findings.
+
+As a psychiatrist, I interviewed first of all the men them­ selves. But, realizing that their prison personality patterns would naturally reflect a desire to curry favor, and for the further reason that any honest testimony is usable in psy­ chiatric synthesis, I also obtained interviews with and writ­ ten reports from a number of persons who had known the Nuremberg Nazis when they were at the top of the heap.
+
+Such outside evidence provided confirmation that all of the prisoners were exhibiting various degrees of depression. The following excerpts from a letter which one of them wrote to his wife is generally indicative of the hopelessness and discouragement all 22 displayed in greater or lesser degree.
+
+"I doubt whether anyone can understand our state of mind without having experienced all this. The worries about the closest members of the family, the sons missing in action, the destroyed property, and all the personal pain about the whole country, about other relatives, the painful thoughts about the future without any regard to our own fate-all this is so unique that it can only be compared with the Thirty Years' War of destruction. The great difference is that the catastrophe came within two years and to an extent never witnessed before. 
+
+We intended to build a more beautiful Germany; instead we now have a heap of rubbish, ummagmable, and not to be eliminated in decades."
+
+Such a wealth of data was available-from associates, moving pictures, speeches, writings, and other records-that I was able to verify virtually every facet of character of every person under examination. For the record, all histor­ ically significant material in this report is based on a minimum of two, and generally three, witnesses. In many instances, I have not revealed the source of my information. But each has been authenticated, and the information is available to interested and qualified individuals.
+
+Complete studies of the personalities discussed in this book are under way. They will be published in the professional journals in due time.
+
+I wish to express here my deepest appreciation to Lt. Col. Renee Juchli who, as Chief Medical Officer of Nurem­ berg Jail, gave wholehearted support to my studies. I am grateful also to the other members of the medical and nurs­ ing staff and, particularly, to Lt. Dorothy Mears who was instrumental in obtaining data from the female prisoners among the lesser Nazis in the jail. I am also grateful to the Commanding Officer of the Internal Security Detachment, Col. B. C. Andrus, who facilitated my work at every -step.
+
+Without the support of Drs. Richard M. Brickner, D. Ewen Cameron, Nolan D. C. Lewis, John A. P. Millet, and Marga­ ret Mead, I should never have attempted a book for the lay reader. Without the generous aid of Mr. Nathan Schulman, I should certainly never have completed it.
+
+I owe a debt of thanks also to the many translators who aided me in obtaining various manuscripts and in converting
 them to English for my use. The Department of State Publica­ tion # 1864 and other translations were most helpful, as was the work of Mr. T. H. Tetens, head of the Germanic Library
 in New York City.
-  Mr. Charles Burnes shared the burden of editorial collabo­ ration in preparation of the manuscript, and I rur:1 deep y indebted to him for the time and energy he put mto this
+
+Mr. Charles Burnes shared the burden of editorial collabo­ ration in preparation of the manuscript, and I rur:1 deep y indebted to him for the time and energy he put mto this
 most difficult task.
 
 
@@ -234,7 +246,7 @@ Adolf Hitler was without question the principal maker of policy for the Nazis tr
 ## CHAPTER THREE RUDOLF HESS
 PROBABLY NO FIGURE IN RECENT YEARS HAS BEEN THE
 subject of so much publicity and wild guessing as has the one-time deputy of Adolf Hitler, Rudolf Hess. Until May 10, 1941, when he made his dramatic flight to England, Hess's role in German history was simple and unimpressive. Since that time, however, virtually every intelligent, informed per­ son in the world bas at some time speculated on the person­ ality of this puzzling Nazi and the reasons for his flight. Hess's action is logical only if we can understand his basic psychic structure.
-  Because Hess had had a psychotic episode while under detention by the British, and because I wanted to clear his mind and keep him in shape for trial, I spent hours at a time, for weeks on end, in his cell. Though he spoke Eng­ lish well and i,mswered most questions quite readily, I never succeeded in getting him to be friendly. He was almost con­ stantly on guard,- aloof, clicking his heels and saluting. One day when the question of his treatment came up he explained bis attitude: "You are kind, yes. But I do not know if you are a friend. I shall wait until (he trial is finished. Then I will know if you are a friend or not a friend."
+  Because Hess had had a psychotic episode while under detention by the British, and because I wanted to clear his mind and keep him in shape for trial, I spent hours at a time, for weeks on end, in his cell. Though he spoke Eng­ lish well and i,mswered most questions quite readily, I never succeeded in getting him to be friendly. He was almost con­ stantly on guard,- aloof, clicking his heels and saluting. One day when the question of his treatment came up he explained bis attitude: "You are kind, yes. But I do not know if you are a friend. I shall wait until the trial is finished. Then I will know if you are a friend or not a friend."
   Though he was not insane while under my care, Hess could not at any time be called a normal person. He had left Germany at a time when the Reich was master of Eu­ rope and potential master of the world. He believed passion­ ately in Germany's final triumph. As time wore on and the tide of battle turned, his fanatical mind would not accept the growing magnitude of Germany's defeat. When the end did come, he still insisted upon childish play acting as the deputy of a Fuehrer who was no more. The answering of personal questions he regarded as beneath his dignity.
   Hess was an Auslander, born in Alexandria, Egypt. He was taught by a private tutor until he was fifteen, when he was sent to Germany to complete his education. As a university student he met Karl Haushofer, the famous German professor of geopolitics, who became a sort of second father to him.
 When the First World War began, Hess joined immediately
