@@ -147,30 +147,35 @@ THE NAZIS AND THE GERMANY THEY MADE ARE EXCEL­
 lent proof of the hypothesis that cultural retrogression can be fostered perhaps more readily than cultural progress. The seeds of progress are always present in every culture, but they need careful cultivation and weeding, encouraging sunlight and showers. Also present in every culture are the roots of primitive loyalties and hatreds requiring only stim­ sunlight and showers. Also present in every culture are the Germany into neo-paganism and barbarism simply by apply­ ing a heavy dressing of hate-rousing propaganda and then effective direction to forces already latent in the nation's makeup. Let me illustrate with three quotations:
 First: "It is necessary that our civilization build its tem­
 ple on mountains of corpses, on an ocean of tears, and on the death cries of men without number."
-  Second: "Frankly, we are and must be barbarians ... Ev­ ery act, no matter what the nature, committed by our troops for the purpose of discouraging, defeating, and destroying our enemies is a brave deed, and is fully justified ... We should not worry about the opinions and reactions in neutral countries ... They call us barbarians. What of it? We scorn them and their abuse ... Our troops must achieve victory. What else matters?"
-  Third·: "The new Europe will be a continent restored to barbarism ... And this time the foundation for the new Eu­ rope will be laid, not by priests and diplomats, but by pirates of destiny ... Now, at last, we may frankly confess that the Gospel has lost all meaning for us."
-  The origins of those three statements of policy-and, make no mistake, they voiced a continuing German policy-are: For the first, General Count von Haesler, in an address to his troops in 1893; for the second, Major General von Disfurth, in the Hamburger Nachrichten, November, 1914; for the third, Jankow Janeff of the staff of Alfred Rosen­
+
+Second: "Frankly, we are and must be barbarians ... Ev­ ery act, no matter what the nature, committed by our troops for the purpose of discouraging, defeating, and destroying our enemies is a brave deed, and is fully justified ... We should not worry about the opinions and reactions in neutral countries ... They call us barbarians. What of it? We scorn them and their abuse ... Our troops must achieve victory. What else matters?"
+
+Third·: "The new Europe will be a continent restored to barbarism ... And this time the foundation for the new Eu­ rope will be laid, not by priests and diplomats, but by pirates of destiny ... Now, at last, we may frankly confess that the Gospel has lost all meaning for us."
+
+The origins of those three statements of policy-and, make no mistake, they voiced a continuing German policy-are: For the first, General Count von Haesler, in an address to his troops in 1893; for the second, Major General von Disfurth, in the Hamburger Nachrichten, November, 1914; for the third, Jankow Janeff of the staff of Alfred Rosen­
 berg, in his book Heroism and World Fear, 1937.
 
 It is evident that the Nazis alone did not reverse the ttream of German culture; the cult of barbarism had live toots there still in 1923.
-  Nor did Hitler and Rosenberg invent the myth of the Ger­ man super-race. Here is evidence in the same sequence:
-  "We are the salt of the earth ... God created us so that Ne should civilize the world." (Kaiser Wilhelm II, in his Tangier speech, 1905.)
-  "The Germans are the chosen people of the: earth. They iVill accomplish their destiny, which is to direct the world md  to govern other nations for  the good of  humanity."
+
+Nor did Hitler and Rosenberg invent the myth of the Ger­ man super-race. Here is evidence in the same sequence:
+- "We are the salt of the earth ... God created us so that Ne should civilize the world." (Kaiser Wilhelm II, in his Tangier speech, 1905.)
+- "The Germans are the chosen people of the: earth. They iVill accomplish their destiny, which is to direct the world md  to govern other nations for  the good of  humanity."
+
 !Professor von Seyden, Frankfurter Zeitung, 1914).
-  "... The Government has decided to extend the German order over the whole world. The world will have to reck­ on with German economy, with German soldiers, and can­ non." (Dr. Goebbels, in a speech on March 23, 1936.)
-  The depreciation of ethics, of conscience as a guide to onduct, reached its prime expression in the Nuremberg Nazis. But the way had been prepared. Pedants, generals, md priests had long taught that no moral scruples should
+-  "... The Government has decided to extend the German order over the whole world. The world will have to reck­ on with German economy, with German soldiers, and can­ non." (Dr. Goebbels, in a speech on March 23, 1936.)
+
+The depreciation of ethics, of conscience as a guide to onduct, reached its prime expression in the Nuremberg Nazis. But the way had been prepared. Pedants, generals, md priests had long taught that no moral scruples should
 ,tay a hand raised to strike for the German State. Some oersons may assume that a higher morality guided Germany's
-·ulers during the years of the Weimar Republic, but the evi­ tlence does not support wishful assumptions.  Here is the
+rulers during the years of the Weimar Republic, but the evi­ tlence does not support wishful assumptions.  Here is the
 :,oastful testimony of Dr. Karl J. Wirth, leader of the Catholic
 ::::enter Party and Chancellor of the Republic from 1921 to 1922, from the Luzerner Tageblatt, August, 1937:
-"As to the rearmament of Germany, Hitler has only con­
-:inued the rearmament that had been prepared by the Weimar epublic. I, myself, deserve great credit for this prepa­ ration ...  The great difficulty was that our military efforts
+"As to the rearmament of Germany, Hitler has only con­tinued the rearmament that had been prepared by the Weimar epublic. I, myself, deserve great credit for this prepa­ ration ...  The great difficulty was that our military efforts
 :rnd  to  be  kept  secret  from  the  Allies ...  When  Hitler
-::arne to power he no longer needed to concern himself with
-:he quality of the German Army but only with the quantity. The real reorganization was our work."
-  What of Nazi Germany's slave-labor policy? The follow­ ing statement of Ernst Haase, Leipzig University professor md President of the Pan-German League, dates back to 1905, and anticipates the crimes of Frank, Rosenberg, and Sauckel.
+::arne to power he no longer needed to concern himself with the quality of the German Army but only with the quantity. The real reorganization was our work."
+
+What of Nazi Germany's slave-labor policy? The following statement of Ernst Haase, Leipzig University professor md President of the Pan-German League, dates back to 1905, and anticipates the crimes of Frank, Rosenberg, and Sauckel.
 "Who in the future is to do the heavy and dirty work
-.vhir::h every national community based on labor will always 1eed? . . . Is it to be left to any part of our German people
+.vhir::h every national community based on labor will always leed? . . . Is it to be left to any part of our German people
 :o 9c:upy such slaves' positions? The solution consists in
 )Ur condemning alien European stock, the Poles, Czechs, fews, Italians and so on ... to these slaves' occupations."
 
